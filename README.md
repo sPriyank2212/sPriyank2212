@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sPriyank2212
-- 👀 I’m interested in EMBEDDED SOFTWERE DEVLOPER
+- 👀 I’m interested in EMBEDDED 
 - 🌱 I’m currently working in NEW SPACE TECHNOLOGY
 - 💞️ yeah, we can work together
 - 📫 I am Here, spriyank683@gmail.com
